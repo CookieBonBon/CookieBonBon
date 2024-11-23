@@ -1,4 +1,4 @@
-Hallow!! Bonbons here~ Just some stuff for the future
+
 
 <!---
 CookieBonBon/CookieBonBon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
