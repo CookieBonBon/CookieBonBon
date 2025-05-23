@@ -10,7 +10,7 @@
 
 ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 
-★ . C+H freely I BEG even if my skin doesn’t have c+h on it 🙏☹️ I don't want y'all to be lonely plus I don’t bite for no reason at all!! Just be appropriate please ( ˶ˆᗜˆ˵ )
+★ . C+H freely I BEG although ask to c+h only when my skin doesn't have it in the name or I'm already sitting with someone else 🙏☹️ I don't want y'all to be lonely plus I don’t bite for no reason at all!! Just be appropriate please ( ˶ˆᗜˆ˵ )
 
 ★ . Always ask if wanting to take inspo from my skins, of course don't make it obvious
 
