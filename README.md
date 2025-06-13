@@ -1,4 +1,4 @@
-★ . Howdy!! Off the start - what to call me? My most commonly used names are Bonny and Bon, but others are Loni(or Eloni), anything I have displayed or even a nickname you came up with! Just... make it appropriate. ૮꒰◞ ˕ ◟ ྀི꒱ა
+★ . Howdy!! Off the start - what to call me? My most commonly used names are Bonny, Bon and Eloni/Loni, anything I have displayed or even a nickname you came up with! Just... make it appropriate. ૮꒰◞ ˕ ◟ ྀི꒱ა
 
 ★ . All basic dni. Ships dniuid/f, if ya wanna do a ship with me please ask for permission first!! 
 
