@@ -24,7 +24,8 @@ If anyone has any disturbing/creepy Vocaloid song recomms HIT ME UP!! Or if you 
 
    ❀ Characters that I AM !! 
    
-★ Eloni - No Straight Roads 
+★ Eloni - No Straight Roads  
+★ Casey - No Straight Roads
 ★ Kaveh - Genshin Impact 
 ★ Sigewinne - Genshin Impact 
 ★ Crossbow Cultist - 99 Nights In The Forest  (shh dont comment on it gng ok..?) 
