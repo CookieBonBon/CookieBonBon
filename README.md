@@ -29,6 +29,7 @@ If anyone has any disturbing/creepy Vocaloid song recomms HIT ME UP!! Or if you 
 ★ Kaveh - Genshin Impact  
 ★ Sigewinne - Genshin Impact 
 ★ Crossbow Cultist - 99 Nights In The Forest  (shh dont comment on it gng ok..?) 
+★ Marcus the worm 🔥🔥🔥
 extra - I have some ocs that I made to represent my main current mood + self regulation reasons, any further explanation will be given if completely needed. A quick walkthrough on the emojis each one respresents is in my discord bio since I mainly use them there, but I will put it here as well just in case ^_^ 
 [🌺 . feel sane!
 [🎭 . messy mind. IWEC, agitative
