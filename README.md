@@ -24,26 +24,27 @@ If anyone has any disturbing/creepy Vocaloid song recomms HIT ME UP!! Or if you 
 
    ❀ Characters that I AM !! 
    
-★ Eloni - No Straight Roads  
-★ Casey - No Straight Roads 
-★ Kaveh - Genshin Impact  
-★ Sigewinne - Genshin Impact 
-★ Crossbow Cultist - 99 Nights In The Forest  (shh dont comment on it gng ok..?) 
-★ Marcus the worm 🔥🔥🔥
+ ★ Eloni - No Straight Roads  
+  ★ Casey - No Straight Roads 
+ ★ Kaveh - Genshin Impact  
+  ★ Sigewinne - Genshin Impact 
+ ★ Mene Tame - Abnormality Dancin' Girl by Guchiry
+  ★ Crossbow Cultist - 99 Nights In The Forest  (shh dont comment on it gng ok..?) 
+ ★ Marcus the worm 🔥🔥🔥
 extra - I have some ocs that I made to represent my main current mood + self regulation reasons, any further explanation will be given if completely needed. A quick walkthrough on the emojis each one respresents is in my discord bio since I mainly use them there, but I will put it here as well just in case ^_^ 
-[🌺 . feel sane!
-[🎭 . messy mind. IWEC, agitative
-[🌑 . super messy/empty. may not talk
+ [🌺 . feel sane!
+  [🎭 . messy mind. IWEC, agitative
+ [🌑 . super messy/empty. may not talk
 
    𖦹 Characters that I KIN !!
-★ Eve - No Straight Roads 
-★ Columbina - Genshin Impact  (still unsure if I kin her or I feel like her but I put her in KIN for the time being) 
-★ Mene Tame - Abnomality Dancin' Girl by Guchiry
-.
-.
-.
-.
-.
-.
-.
+ ★ Eve - No Straight Roads 
+  ★ Columbina - Genshin Impact  (still unsure if I kin her or I feel like her but I put her in KIN for the time being) 
+ ★ Mene Tame - Abnomality Dancin' Girl by Guchiry
+ .
+ .
+ .
+ .
+ .
+ .
+ .
 ![IMG_0307](https://github.com/user-attachments/assets/7cc5d945-beed-4122-943f-c63147227617)
