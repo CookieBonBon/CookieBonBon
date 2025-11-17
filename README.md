@@ -63,7 +63,7 @@ extra - I have some ocs that I made to represent my main current mood + self reg
  
   ★ Columbina - Genshin Impact  (still unsure if I kin her or I feel like her but I put her in KIN for the time being) 
   
- ★ Mene Tame - Abnomality Dancin' Girl by Guchiry
+ ★ Mene Tame - Abnormality Dancin' Girl by Guchiry
  
  .
  
