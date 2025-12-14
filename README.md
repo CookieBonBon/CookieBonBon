@@ -1,6 +1,6 @@
 ★ . Greetings! Off the start - what to call me?
 
-Either Bon, Bonny or Cookie, but first 2 appeal to me most! You can also call me by the name of the character I am at the very moment - skin that has 'me/me irl' in the name!
+Either Bon, Bonny or Cookie, but first 2 appeal to me most! You can also call me by the name of the character I am at the very moment - skin that has 'me/me irl' in the name! If you don't know the name of the charcater feel free to ask ^_^
 
 
 ★ . All basic dni!
@@ -43,11 +43,13 @@ If anyone has any disturbing/creepy Vocaloid song recomms HIT ME UP!! Or if you 
  
   ★ Sigewinne - Genshin Impact 
   
- ★ Mene Tame - Abnormality Dancin' Girl by Guchiry
- 
-  ★ Crossbow Cultist - 99 Nights In The Forest  (shh dont comment on it gng ok..?) 
+ ★ Mene Tame - Character by Guchiry
+
+  ★ Ishii – Character by Guchiry
   
- ★ Marcus the worm 🔥🔥🔥
+ ★ Crossbow Cultist - 99 Nights In The Forest  (shh dont comment on it gng ok..?) 
+  
+  ★ Marcus the worm 🔥🔥🔥
  
  
 extra - I have some ocs that I made to represent my main current mood + self regulation reasons, any further explanation will be given if completely needed. A quick walkthrough on the emojis each one respresents is in my discord bio since I mainly use them there, but I will put it here as well just in case ^_^ 
@@ -61,10 +63,8 @@ extra - I have some ocs that I made to represent my main current mood + self reg
    
  ★ Eve - No Straight Roads 
  
-  ★ Columbina - Genshin Impact  (still unsure if I kin her or I feel like her but I put her in KIN for the time being) 
+  ★ Columbina - Genshin Impact
   
- ★ Mene Tame - Abnormality Dancin' Girl by Guchiry
- 
  .
  
  .
