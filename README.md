@@ -70,6 +70,3 @@ extra - I have some ocs that I made to represent my main current mood + self reg
  .
 
 ![IMG_0307](https://github.com/user-attachments/assets/7cc5d945-beed-4122-943f-c63147227617)
-.
-.
-https://cdn.discordapp.com/attachments/1445783891699957874/1446313472672530472/72c11e60f22144a31937af0766164a76.jpg?ex=693f6563&is=693e13e3&hm=316b4649383ad493c65ea42d6d1a85094eff7fbc32224d7c9cbdcd3ef432b6af&
