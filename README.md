@@ -8,7 +8,7 @@ Either Bon, Bonny or Cookie, but first 2 appeal to me most! You can also call me
 
 ★ . Ships dniuid or unless I have it mentioned on my skin! Don't push it, it won't work.
 
-As for you travelers, RerirxFlins is a STRAIGHT DNI. don't be surprised if I walk off or show discomfort/uninterest! + any ship including either Rerir or Flins dni, PAST RerirxTholindis is fine tho ^_^
+As for you travelers, RerirxFlins is a STRAIGHT DNI. don't be surprised if I walk off or show discomfort/uninterest! + any ship including either Rerir or Flins dni okuay? RerirxTholindis is fine tho ^_^
 
 
 ★ . Always iwc!
