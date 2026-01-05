@@ -1,4 +1,4 @@
-CHECK STRAW FOR MORE AND DETAILED INFO !!! also feel free to peek at tumblr!! :D
+paranoid and pressimistic... CHECK STRAW FOR MORE AND DETAILED INFO !!! also feel free to peek at tumblr!! :D
 ___
 
 ★ . Greetings! Off the start - what to call me?
