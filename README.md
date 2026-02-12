@@ -1,9 +1,9 @@
-paranoid and pressimistic... CHECK STRAW FOR MORE AND DETAILED INFO !!! also feel free to peek at tumblr!! :D
+paranoid and pessimistic... CHECK STRAW FOR MORE AND DETAILED INFO + QUICKLY READ FANDOMS IN DNI LIST BEFOREHAND !!! also feel free to peek at tumblr!! >:P
 ___
 
 ★ . Greetings! Off the start - what to call me?
 
-Either Bon, Bonny or Cookie, but first 2 appeal to me most! You can also call me by the name of the character I am at the very moment - skin that has 'me/me irl' in the name! If you don't know the name of the charcater feel free to ask ^_^
+Either Bon, Bonny or Cookie, but first 2 appeal to me most! You can also call me by the name of the character I am at the very moment - skin that has 'me/me irl' in the name or even without idm! If you don't know the name of the charcater feel free to ask ^_^
 
 ★ . Ships dniuid or unless I have it mentioned on my skin! Don't push it, it won't work.
 
